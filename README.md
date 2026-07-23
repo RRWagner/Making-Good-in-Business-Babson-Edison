@@ -6,6 +6,6 @@ with the inscription:
 "To Thomas A. Editon - a man who has made good.
  With best wishes from Roger. W. Babson (Oct. 25, 1921"
 
- Annotate further on the page to say,
+ Annotated by an unknown person further on the page to say,
  "Inscribed by Thomas Edison with 14 pages annotated in Edison's hand."
  
